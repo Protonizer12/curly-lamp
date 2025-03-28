@@ -1,5 +1,4 @@
 # curly-lamp
+I made a review on a school hosting a hacking competition.
 
-oops
-
-GHunting my own maiL??? Who would do that?
+Pretty cool if you ask me!
